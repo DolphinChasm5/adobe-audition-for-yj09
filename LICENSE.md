@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for PC | Adobe Audition for Windows best Effect: pitch-shifting & spectrogram-view is the best Adobe Audition for PC | Adobe Audition for Windows effect, featuring
 
 
 
